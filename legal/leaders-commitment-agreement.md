@@ -36,14 +36,14 @@ As part of my responsibilities as a Leader:
 
 By my signature below, I acknowledge that I have read and understand the terms of this Commitment and any materials referenced herein, and agree to be bound and abide by all of the requirements, obligations, and duties set forth herein. 
 
-Leader Name:
+Leader Name: Henrique Silva de Jesus  
 
-Leader Company:
+Leader Company: Vivo
+ 
+Leader E-Mail: henriquesilva754@gmail.com
 
-Leader E-Mail:
+Leader Phone:551196209-0205
 
-Leader Phone:
+Date: 13/04/2022
 
-Date:
-
-Signature:
+Signature: Henrique Silva de Jesus
